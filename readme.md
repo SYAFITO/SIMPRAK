@@ -8,6 +8,5 @@
 ![Screenshot (492)](https://github.com/user-attachments/assets/2db44b31-f3ef-4b1f-9008-e345b38094c6)
 ![Screenshot (493)](https://github.com/user-attachments/assets/fe36f30e-c7f2-4891-a3e4-1560c2bef95f)
 ![Screenshot (494)](https://github.com/user-attachments/assets/cc1184c7-e28a-4208-89c2-4bcb69d34394)
-![Screenshot (495)](https://github.com/user-attachments/assets/6ab4503c-f3c0-4300-bf1f-0739c792b75c)
 ![Screenshot (496)](https://github.com/user-attachments/assets/de3751b7-bb0c-4969-887f-5492ca6d804a)
 
